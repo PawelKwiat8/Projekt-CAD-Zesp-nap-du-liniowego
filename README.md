@@ -1,1 +1,1 @@
-# Projekt-CAD-Zesp-nap-du-liniowego
+# Projekt-CAD-Zespol-napedu-liniowego
